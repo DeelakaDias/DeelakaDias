@@ -13,8 +13,7 @@
 
 - 📫 How to reach me **deelakadias2002@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFzRsMZloE/eWg1ABkeQI4c8udMwIVPkg/edit?utm_content=DAFzRsMZloE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFzRsMZloE/eWg1ABkeQI4c8udMwIVPkg/edit?utm_content=DAFzRsMZloE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
-- https://www.canva.com/design/DAF9835z4Qo/_yafRMCQojPVs12jiGiHtw/edit?utm_content=DAF9835z4Qo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+- 📄 Know about my experiences https://www.canva.com/design/DAF9835z4Qo/_yafRMCQojPVs12jiGiHtw/edit?utm_content=DAF9835z4Qo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
