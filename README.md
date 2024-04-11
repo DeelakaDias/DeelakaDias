@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Deep learning, Simulation techniques**
 
-- 💬 Ask me about **Computational Mathematics, HTML, Python**
+- 💬 Ask me about **Computational Mathematics, Python, NLP, TensorFlow, Machine Learning**
 
 - 📫 How to reach me **deelakadias2002@gmail.com**
 
